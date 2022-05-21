@@ -21,3 +21,7 @@ die delenn sagte so tolle sachen wie zb:
 > sehen ist besser als nehmen
 > hören fühlt sich rot an
 und viele weitere quotes
+
+
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/9/9c/Aldrin_Apollo_11.jpg"/>
