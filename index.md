@@ -13,3 +13,11 @@ was muss ich sagen, da hat der merge versagt. ich bin ein dummi.
 * sagte ich doch bereits
 * echt gut 
 * acht reihen sollten reichen, wah? 
+
+die delenn sagte so tolle sachen wie zb:
+> wtf
+> ich bin die delenn
+> wollen wir freunde sein
+> sehen ist besser als nehmen
+> hören fühlt sich rot an
+und viele weitere quotes
